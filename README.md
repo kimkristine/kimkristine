@@ -3,3 +3,5 @@
 
 - 🌱 I’m currently learning instructional design, computer programming, and data visualization. 
 - ✨ I'm a former elementary school teacher. 
+
+Connect with me on: [LinkedIn](www.linkedin.com/in/kristine-kim-434a35103/)
